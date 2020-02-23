@@ -1,1 +1,1 @@
-https://duboiskayaolga.github.io/singolo
+https://duboiskayaolga.github.io/singolo/singolo1.html
